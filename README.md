@@ -1,1 +1,1 @@
-# scientific-research-internship-task-1
+# scientific-research- technology-internship-task-1
